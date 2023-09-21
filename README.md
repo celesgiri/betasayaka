@@ -4,6 +4,11 @@ look. at these people cuddling me.
 
 ![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/84e150fc-fe22-4d7f-a669-e264712b3ef4)
 
+![image](https://github.com/betasayaka/betasayaka/assets/143943991/fe7a58f6-2480-44c3-92bc-8ef7e899d28f)
+
+^ user konigcorpse the stinky...
+
+
 i post people cuddling me on here so you should cuddle me! free shoutout! yeah!!!!
 
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
