@@ -14,6 +14,9 @@ i have my github attached on everything so if you see someone that looks like me
 
 ![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)
 
+![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)
+
+
 cuddle me whenever im alone i'll post you on here
 
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
