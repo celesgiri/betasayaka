@@ -1,15 +1,20 @@
-i like people cuddling me
+![blur_edges (40)](https://github.com/betasayaka/betasayaka/assets/143943991/53e09f77-7cf4-4aae-a131-67de7ac95c88)
 
-look. at these people cuddling me.
+**sayaka** _or_ **maizono** [+](https://rentry.co/__girlinred)
 
-![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/84e150fc-fe22-4d7f-a669-e264712b3ef4)
+she/he bigender sapphic poly 
 
-![image](https://github.com/betasayaka/betasayaka/assets/143943991/fe7a58f6-2480-44c3-92bc-8ef7e899d28f)
+idgaf if you copy my style/skins just tell me first! or else i will probably hide you... 
 
-^ user konigcorpse the stinky...
+i have my github attached on everything so if you see someone that looks like me but doesnt have the beta sayaka rentry that aint me!! 
 
+**people cuddlingf me**
 
-i post people cuddling me on here so you should cuddle me! free shoutout! yeah!!!!
+![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)
+
+![Screenshot 2023-09-20 072652](https://github.com/betasayaka/betasayaka/assets/143943991/4d82d67d-1e4c-4dd7-a466-b9068a953dae)
+
+cuddle me whenever im alone i'll post you on here
 
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
 ![tumblr_add64ccd2763f514ff1fb330408b74d2_e76ee49e_100](https://github.com/betasayaka/betasayaka/assets/143943991/b1b6867d-e46d-443f-a297-da9cb7ad5af6)
@@ -34,8 +39,8 @@ i post people cuddling me on here so you should cuddle me! free shoutout! yeah!!
 ![](https://64.media.tumblr.com/da8e908ba0ae36e8a270f9a0e03bbd88/tumblr_pcoz6fd8t91xbgu08o4_100.png)
 ![](https://64.media.tumblr.com/35f65dadbb0b30673f1818973b8e94ca/tumblr_pcoz6fd8t91xbgu08o8_100.gifv)
 ![](https://64.media.tumblr.com/49a70790ac57ab5d6d93b04981e02634/tumblr_pcoxdrBR3G1xbgu08o3_100.png)
-
-![blur_edges (40)](https://github.com/betasayaka/betasayaka/assets/143943991/fa33799b-a312-4238-929e-b9822cb51789)
-chuuya nakaharhrahrhaarar
-
-i'll decorate this at some point please bare with me....
+![tumblr_8e53c44763a7d3a93c86266eca18f9a9_b65fdb07_100](https://github.com/betasayaka/betasayaka/assets/143943991/47ce4f74-4769-4c63-b618-20220d246c86)
+![tumblr_py5x7uwS3K1xbgu08o1_100](https://github.com/betasayaka/betasayaka/assets/143943991/fcbeb749-e56c-4d9d-87eb-07d9e0a50e91)
+![tumblr_pufybm69P51xbgu08o8_100](https://github.com/betasayaka/betasayaka/assets/143943991/c320cdd5-7cfd-4775-8a56-988a7297a464)
+![tumblr_pufybm69P51xbgu08o4_100](https://github.com/betasayaka/betasayaka/assets/143943991/ea333bfb-673a-4ac5-9d17-afea0bc576d9)
+![tumblr_pueo2mkUYz1xbgu08o3_100](https://github.com/betasayaka/betasayaka/assets/143943991/4f377a0c-8cf3-4052-8ee0-f5a4a879d999)
