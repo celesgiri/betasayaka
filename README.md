@@ -34,3 +34,8 @@ i post people cuddling me on here so you should cuddle me! free shoutout! yeah!!
 ![](https://64.media.tumblr.com/da8e908ba0ae36e8a270f9a0e03bbd88/tumblr_pcoz6fd8t91xbgu08o4_100.png)
 ![](https://64.media.tumblr.com/35f65dadbb0b30673f1818973b8e94ca/tumblr_pcoz6fd8t91xbgu08o8_100.gifv)
 ![](https://64.media.tumblr.com/49a70790ac57ab5d6d93b04981e02634/tumblr_pcoxdrBR3G1xbgu08o3_100.png)
+
+![blur_edges (40)](https://github.com/betasayaka/betasayaka/assets/143943991/fa33799b-a312-4238-929e-b9822cb51789)
+chuuya nakaharhrahrhaarar
+
+i'll decorate this at some point please bare with me....
