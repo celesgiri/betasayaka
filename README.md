@@ -6,7 +6,7 @@ she/he bigender sapphic poly
 
 idgaf if you copy my style/skins just tell me first! or else i will probably hide you... 
 
-i have my github attached on everything so if you see someone that looks like me but doesnt have the beta sayaka rentry that aint me!! 
+i have my github attached on everything so if you see someone that looks like me but doesnt have betasayaka github that aint me!! 
 
 **people cuddlingf me**
 
