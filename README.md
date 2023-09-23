@@ -1,14 +1,10 @@
 ![blur_edges (40)](https://github.com/betasayaka/betasayaka/assets/143943991/53e09f77-7cf4-4aae-a131-67de7ac95c88)
 
-**sayaka** _or_ **maizono** [+](https://rentry.co/__girlinred)
+osdd-1b sayaka solo account 
 
-she/he bigender sapphic poly 
+**sayaka** or **maizono** - she/he bigender poly sapphic
 
-idgaf if you copy my style/skins just tell me first! or else i will probably hide you... 
-
-i have my github attached on everything so if you see someone that looks like me but doesnt have betasayaka github that aint me!! 
-
-**people cuddlingf me**
+im really nice i swear!!!
 
 ![Screenshot 2023-09-21 102338](https://github.com/betasayaka/betasayaka/assets/143943991/18734fcc-6267-47f5-9937-932e992b8d2f)
 
