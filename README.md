@@ -12,6 +12,9 @@ im really nice i swear!!!
 
 ![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)
 
+![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)
+
+
 
 cuddle me whenever im alone i'll post you on here
 
