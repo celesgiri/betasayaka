@@ -2,7 +2,7 @@
 
 osdd-1b sayaka solo account 
 
-**sayaka** or **maizono** - she/he bigender poly sapphic
+**sayaka** or **maizono** or **natsume** - she/he bigender poly sapphic
 
 im really nice i swear!!!
 
