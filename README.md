@@ -17,10 +17,10 @@
 
 ![image](https://github.com/betasayaka/betasayaka/assets/143943991/14760305-8169-45c3-be24-5ea550d7791c)
 
-![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+![image](https://github.com/betasayaka/betasayaka/assets/143943991/40afe63c-0198-4f88-a718-a4f3558e9e3f)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤcuddle me whenever im alone i'll post you on hereㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ
-stamp attack!!!!!!!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-ㅤㅤ
+
+
 ![tumblr_d52f0d869aa5d8f29315fcc83cb41042_b46d3d0f_100](https://github.com/betasayaka/betasayaka/assets/143943991/f130dd9d-0091-44e7-a86b-13ecaa665ca2)
 ![tumblr_add64ccd2763f514ff1fb330408b74d2_e76ee49e_100](https://github.com/betasayaka/betasayaka/assets/143943991/b1b6867d-e46d-443f-a297-da9cb7ad5af6)
 ![tumblr_1361e4a09fe23144d29e50344f9edac1_faf86807_100](https://github.com/betasayaka/betasayaka/assets/143943991/e768e339-ad3f-4893-824d-cbcb7a117f72)
@@ -49,5 +49,6 @@ stamp attack!!!!!!!ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ�
 ![tumblr_pufybm69P51xbgu08o8_100](https://github.com/betasayaka/betasayaka/assets/143943991/c320cdd5-7cfd-4775-8a56-988a7297a464)
 ![tumblr_pufybm69P51xbgu08o4_100](https://github.com/betasayaka/betasayaka/assets/143943991/ea333bfb-673a-4ac5-9d17-afea0bc576d9)
 ![tumblr_pueo2mkUYz1xbgu08o3_100](https://github.com/betasayaka/betasayaka/assets/143943991/4f377a0c-8cf3-4052-8ee0-f5a4a879d999) 
+
 ![](https://64.media.tumblr.com/2768bbfb71d5659e4c95610a74d36cdd/c4d08067632bcc34-ef/s400x600/990dd4cced7eaf857c246d6e3d16637db974b5a3.pnj)ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤ
